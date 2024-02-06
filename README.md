@@ -1,0 +1,1 @@
+Welcome to Trantor. Respect and enjoy the peace.
